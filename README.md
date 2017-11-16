@@ -1,8 +1,9 @@
 # Dear MOJANG & Microsoft Team
 
-*最后更新(last update)：2017/11/16*<br>
+*最后更新(last update)：2017/11/17*<br>
 *在你游玩网易我的世界的时候，请务必阅读以下真实Minecraft现状*<br>
 *中国Minecraft（我的世界）玩家 请将网页下拉至中文，国外网站加载可能偏慢，请耐心等待*
+*文末拥有对应的图片、截图，有图有真相，不服来辩*
 
 
 Written in front：
