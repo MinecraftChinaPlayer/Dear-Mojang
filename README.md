@@ -241,6 +241,7 @@ The content may be changed, I will send again Sincerely Yours, millions of Minec
 # 发布会全部打脸，无一实现
  ----------------------    
 
+这对于一个大公司而言，简直搞笑至极，现在网易还有什么脸敢站出来？
  
  ![](/img/a1.png)
  ![](/img/a2.png)
