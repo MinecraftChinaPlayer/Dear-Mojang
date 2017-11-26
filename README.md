@@ -268,3 +268,5 @@ The content may be changed, I will send again Sincerely Yours, millions of Minec
 ![](/img/18.png)
 ![](/img/19.png)
 ![](/img/21.jpg)
+
+# 总结：网易"我的世界"，滚出中国，还中国一个与世界一样的Minecraft！
